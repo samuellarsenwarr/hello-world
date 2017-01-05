@@ -1,2 +1,6 @@
 # hello-world
 beginning program
+
+I am writing things in this file because i have to.
+
+I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me. I am one with the force and the force is with me.
